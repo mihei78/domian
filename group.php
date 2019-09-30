@@ -2,6 +2,6 @@ flibusta.is
 nnm-club.me
 rutracker-org.appspot.com
 rutracker.org
-37.1.207.65
+new-rutor.info
 nnm-club.to
 4pna.com
