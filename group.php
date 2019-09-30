@@ -10,3 +10,5 @@ nnm-club.me
 nnmclub.to
 youporn.com
 xuk.ooo
+xuk.one
+xuk.life
