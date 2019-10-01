@@ -1,10 +1,5 @@
 flibusta.is
-rutracker-org.appspot.com
 rutracker.org
 1.rutor.in.net
 4pna.com
 nnmclub.to
-youporn.com
-xuk.ooo
-xuk.one
-xuk.life
