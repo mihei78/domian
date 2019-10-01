@@ -1,12 +1,8 @@
 flibusta.is
-nnm-club.ru
 rutracker-org.appspot.com
 rutracker.org
 1.rutor.in.net
-nnm-club.to
 4pna.com
-nnm-club.free-mirror.xyz
-nnm-club.me
 nnmclub.to
 youporn.com
 xuk.ooo
