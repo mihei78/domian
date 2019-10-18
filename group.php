@@ -1,6 +1,9 @@
 flibusta.is
 rutracker.org
-1.rutor.in.net
+new-rutor.info
+herutor.org
+rutor.info
+new-rutor.org
 4pna.com
 nnmclub.to
 vpnbook.com
