@@ -1,7 +1,5 @@
 flibusta.is
 rutracker.org
-new-rutor.info
-herutor.org
 rutor.info
 new-rutor.org
 4pna.com
