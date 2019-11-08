@@ -5,3 +5,6 @@ new-rutor.org
 4pna.com
 nnmclub.to
 vpnbook.com
+hdgo.club
+hdrezka.ag
+rezka.ag
