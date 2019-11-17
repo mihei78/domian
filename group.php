@@ -8,3 +8,5 @@ vpnbook.com
 hdgo.club
 hdrezka.ag
 rezka.ag
+torrent-tv.ru
+noxbit.com
